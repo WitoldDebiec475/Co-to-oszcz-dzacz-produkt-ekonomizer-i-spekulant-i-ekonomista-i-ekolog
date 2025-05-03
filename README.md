@@ -7,3 +7,4 @@ Policja to niepełnosprawni jak dedetktywi bo oni to wymyślili i zarażają pro
 Oszczędzacze to kłucą się niepełnosprawni ludzie po tem rosną jak świnki morskie od jedzenia syfu i są gwiazdami Nozardana to są oszczędzacze i lotto do domu. 
 Te grube osoby z suteryny od Saikoskiego to chengi i bezosy że są grube w sklepach typu Lidl. W Maicrosoft też są otyli tylko gadają oszczędzacze i szambo i karzą jeść jak świnią. I są otyli. 
 Te do systemu i kali linuxy to są szmaty karzą jeść młodym chudym kobietą jak prosiakom w ciąży i są piękne jak w teskasie u nozardana bo liczy się oszczędzacz i szambo zwrtoy kosztów to są otyli.   
+Przez 112 117 999 998 997 te numery alarmowe oszczędzacze i voisy to produkty kolejkcjonerskie nawet radio drukarka kwantowa tylko duży przemysł ta radio drukarka kwantowa tylko do dużego przemysłu. Voisy muszą iść do pracy. 
