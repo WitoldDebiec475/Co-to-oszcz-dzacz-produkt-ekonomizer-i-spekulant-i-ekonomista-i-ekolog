@@ -4,3 +4,4 @@ Bezdomni jak chengowie i bezosy rządzą światem z politykami od Bezosa.
 Opisałem problemy koparek BTC, Oszczędzaczy i zalety radio drukarek kwantowych i Voisów. 
 Oszczędzacze wymyślili niepełnosprawni. 
 Policja to niepełnosprawni jak dedetktywi bo oni to wymyślili i zarażają procersorami wirusem ludzi i AI że oszczędzaczy nie ma. 
+Oszczędzacze to kłucą się niepełnosprawni ludzie po tem rosną jak świnki morskie od jedzenia syfu i są gwiazdami Nozardana to są oszczędzacze i lotto do domu. 
