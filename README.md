@@ -11,3 +11,4 @@ Przez 112 117 999 998 997 te numery alarmowe oszczędzacze i voisy to produkty k
 O karzdą 1 zł kłucą się bezosy to bezosy mają te wszystkie te bienzesy na świecie te punkty i sklepy. Normalni ludzie klepią biedę. Są to nie pełenosprawni ludzie z auatyzmem. Np.: maszyna do lodów o hakerów ceny to 16000 lub 100 000 zł za tą maszynę. Kiedyś te maszyny były po 500 lub 1000 zł. Te ceny to rozwój niepełneosprawności w głowach bezosów. 
 Ci co wynajmują maszyny do lodów za te duże pieniedzą mają duna. 
 Te wszystkie biznesy są nie opłacalne a ceny kosmiczne. bezos ma dauna tak jak jego produkt alexa ai vois. Cały wirus tych sklepów to bezosy. 
+Zarobki nie proporcjonalne do wypłaty i cen to pomysły bezosów i polskiego rządu żydów. Ceny są za wysokie a zarobki ludzi za małe. 
