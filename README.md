@@ -16,3 +16,4 @@ Te zarobki i cenny to madyn in izrael i prawo żydowskie. Prawo żydowskie jest 
 Jeff bezos bezo małe bezo to Thief Garett Thief. Jeff Thief. Niebo kalaifornia Thief.
 Przy obecnych cenach dużą ilość ludzi jest samonta bo ich nie stać na życie razem. Są blokady finasowe i zatory finasowe przez ekonomizery przy obecnych cenach nieruchomości nikogo nie stać na zakup domu czy mieszkania i życia razem. 
 Do systemu narobiły rynek samotników. Ci do systemu to hakerzy detetktywi. 
+Ci politycy to prokuratura generalna ABW są wszyscy do zwolnienia z Bezosami za robienie długów. 
