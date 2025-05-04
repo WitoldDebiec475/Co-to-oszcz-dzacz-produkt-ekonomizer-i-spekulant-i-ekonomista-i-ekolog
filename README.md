@@ -12,3 +12,4 @@ O karzdą 1 zł kłucą się bezosy to bezosy mają te wszystkie te bienzesy na 
 Ci co wynajmują maszyny do lodów za te duże pieniedzą mają duna. 
 Te wszystkie biznesy są nie opłacalne a ceny kosmiczne. bezos ma dauna tak jak jego produkt alexa ai vois. Cały wirus tych sklepów to bezosy. 
 Zarobki nie proporcjonalne do wypłaty i cen to pomysły bezosów i polskiego rządu żydów. Ceny są za wysokie a zarobki ludzi za małe. 
+Te zarobki i cenny to madyn in izrael i prawo żydowskie. Prawo żydowskie jest bardzo a to bardzo nie sprawiedliwe. 
