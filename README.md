@@ -14,3 +14,5 @@ Te wszystkie biznesy są nie opłacalne a ceny kosmiczne. bezos ma dauna tak jak
 Zarobki nie proporcjonalne do wypłaty i cen to pomysły bezosów i polskiego rządu żydów. Ceny są za wysokie a zarobki ludzi za małe. 
 Te zarobki i cenny to madyn in izrael i prawo żydowskie. Prawo żydowskie jest bardzo a to bardzo nie sprawiedliwe. 
 Jeff bezos bezo małe bezo to Thief Garett Thief. Jeff Thief. Niebo kalaifornia Thief.
+Przy obecnych cenach dużą ilość ludzi jest samonta bo ich nie stać na życie razem. Są blokady finasowe i zatory finasowe przez ekonomizery przy obecnych cenach nieruchomości nikogo nie stać na zakup domu czy mieszkania i życia razem. 
+Do systemu narobiły rynek samotników. Ci do systemu to hakerzy detetktywi. 
